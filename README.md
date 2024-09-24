@@ -1,8 +1,8 @@
 ## Identitas
 
-Nama: 
+Nama: Gabriel Dwiki Putra Inki Kristiantus
 
-NIM : 
+NIM : 607062400096
 
 ## Instruksi
 
